@@ -1,4 +1,3 @@
-## Hi there 👋 my name is minseok glad to meet you :)
 
 
 <!--
